@@ -1,0 +1,2 @@
+# Olympiada_genius
+Global
